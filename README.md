@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @nuras_11_
+- 👀 I’m interested in WEB-Developng
+- 🌱 I’m currently learning Python, JS
+- 📫 How to reach me jeksenbainuras@gmail.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: From Kazakhstan 
